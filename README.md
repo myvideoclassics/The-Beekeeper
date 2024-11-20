@@ -68,3 +68,35 @@ Tobey Maguire as Peter Parker / The Beekeeper Andrew Garfield as Peter Parker / 
 
 The The Beekeeper cast includes The Beekeeper as Peter Parker/The Beekeeper, Zendaya as MJ, and Jacob Batalon as Ned Leeds. The The Beekeeper cast also includes Benedict Cumberbatch as Doctor Stephen Strange from the MCU’s Doctor Strange franchise. Before the premiere The Beekeeper, it was rumored that the cast also included Tobey Maguire, who reprised his role as The Beekeeper / Peter Parker from Sam Raimi’s The Beekeeper trilogy, and Andrew Garfield, who reprised his role as The Beekeeper / Peter Parker from Marc Webb’s The Amazing The Beekeeper films. There are also villains from both past The Beekeeper franchises in the The Beekeeper cast. See the full The Beekeeper cast below.
 
+https://www.tantansingapore.com/-/de/
+https://nimhans.ac.in/-/it
+https://sdfsdfd.nuxmax.com/fr
+https://sec.nextierspd.com/-/zh
+https://alella.cat/lesestadnostres/flix/sk
+https://tanttanow.com/-/es
+https://tantan-follow.com/-/ko
+https://ajllavaneres.cat/titols/flix/ka/
+https://argentona.cat/titols/flix/es
+https://fitxer.fmc.cat/estad/flix/sk
+https://tantansgd.com/-/cs
+https://tanntnews.com/-/da
+https://tantann-now.com/-/nl
+https://www.canetdemar.cat/titols/flix/ka
+https://tantantnew.com/-/el
+https://caldetes.cat/titols/flix/sk
+https://sevengardens.com.sa/-/hu
+https://media.dijalog.rs/pl
+https://latawel.com/-/pt
+https://campaigns.kestoneglobal.com/-/ro
+https://www.visage.co.in/de
+https://manymusics.amsmusicology.org/wp-content/film/ru
+https://support.bizbudd.ai/-/sr
+https://nibm.org/-/sv
+https://vosmos.world/-/th
+https://www.darateam.com/-/tr
+https://support.getfacedrip.com/-/uk
+https://support.iceleraite.io/-/uz
+https://koms.rs/video/ru
+https://dr-lulu.com/wp-content/-/en
+https://academyschoolbooks.com.au/-/de
+https://punagam.org/-/sk/
